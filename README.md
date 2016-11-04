@@ -51,7 +51,7 @@ Shelby Larson - Aesthetic Engineer
 
 Aleya Adams - Senior Software Architect
 
-Chynese Harris - 
+Chynese Harris - Executive Code Manufacturer
 
 
 
